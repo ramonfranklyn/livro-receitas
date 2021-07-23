@@ -2,12 +2,12 @@
 
 ## Ingredientes 
 
-1 kg de peito de frango
-4 dentes de alho
-1/2 cebola
-1 colher de margarina
-10 colheres de sopa bem cheias de molho de tomate( ou catchup) pronto
-1 lata de creme de leite
+* 1 kg de peito de frango
+* 4 dentes de alho
+* 1/2 cebola
+* 1 colher de margarina
+* 10 colheres de sopa bem cheias de molho de tomate( ou catchup) pronto
+* 1 lata de creme de leite
 
 
 ## Modo de Preparo 
